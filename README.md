@@ -1,0 +1,1 @@
+# xiaomi-45w-turbo-charging-power-adapter-type-a
